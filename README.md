@@ -18,6 +18,10 @@ There are **no article processing charges**, and issues are released **irregular
 
 Through openness, curiosity, and intellectual honesty, the journal seeks to foster a scientific culture in which both progress and productive failure contribute to collective advancement.
 
+*The official journal website is currently under construction.  
+For submissions, please package the editable source files of your manuscript and send them to:* **shit_journal@163.com**
+
+
 ---
 
 # 《创新科技的科学视野》国际期刊
@@ -49,4 +53,5 @@ Through openness, curiosity, and intellectual honesty, the journal seeks to fost
 通过倡导开放、好奇与学术诚实，本期刊希望营造一种科学文化：  
 **无论是进步，还是富有成效的失败，皆能共同推动人类知识的前沿。**
 
-
+*期刊官方网站正在建设中。  
+如需投稿，请将论文的可编辑源文件打包发送至：* **shit_journal@163.com**
